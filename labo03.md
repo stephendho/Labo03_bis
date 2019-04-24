@@ -1,0 +1,1 @@
+Het zonnestelsel is het planetenstelsel dat bestaat uit de Zon en de hemellichamen die door de zwaartekracht aan de Zon gebonden zijn. De Zon is een klasse G2 ster met een diameter van 1,39 miljoen kilometer. De Zon neemt 99,86% van de massa in het zonnestelsel voor haar rekening.
